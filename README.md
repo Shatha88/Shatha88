@@ -7,7 +7,6 @@
 
 - 📫 How to reach me **shatha.althbiti@gmail.com**
 
-- ⚡ Fun fact **I am learning 5 languages 🇸🇦🇺🇸🇮🇳🇯🇵🇰🇷**
 
 <h4 align="left">Connect with me:</h4>
 <p align="left">
